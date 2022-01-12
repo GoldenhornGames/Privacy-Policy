@@ -1,1 +1,1 @@
-# Privacy-Policy
+# GKPrivacy-Policy
